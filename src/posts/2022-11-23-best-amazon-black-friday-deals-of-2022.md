@@ -31,7 +31,7 @@ And, with Amazon's Prime shipping, you can get your gifts in time for Christmas.
 
    .Take 42% off the [Lodge 10.25-inch Pre-Seasoned Skillet](https://www.amazon.com/dp/B00006JSUA?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C69fea3d8-5f8d-4c43-801f-af83cea61554&linkCode=ll1&tag=bestvela0b-20&linkId=2d15471f305c9e7fe2f16fc7fe6269c5&language=en_US&ref_=as_li_ss_tl). 
 
- **  .**  Take 33% off the [KitchenAid 2.5-cup Food Chopper](https://www.amazon.com/dp/B01LX8I3R3?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7Cdc10a546-2a88-4254-8f0e-dc1698035b82&linkCode=ll1&tag=bestvela0b-20&linkId=eb6f1f2a0d5d39d7d61542b1d18baefa&language=en_US&ref_=as_li_ss_tl)
+  ** .**  Take 33% off the [KitchenAid 2.5-cup Food Chopper](https://www.amazon.com/dp/B01LX8I3R3?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7Cdc10a546-2a88-4254-8f0e-dc1698035b82&linkCode=ll1&tag=bestvela0b-20&linkId=eb6f1f2a0d5d39d7d61542b1d18baefa&language=en_US&ref_=as_li_ss_tl)
 
 * Take **33% off** the [NutriBullet Blender Combo](https://www.amazon.com/dp/B07VNN6SMD?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7Cd1323648-9ef6-4c19-bf17-a8ca36f405b1&linkCode=ll1&tag=bestvela0b-20&linkId=a79b390a61667bd4404364fd4a364334&language=en_US&ref_=as_li_ss_tl).
 * Take **30% off** the [Cuisinart Air Fryer and Convection Toaster Oven](https://www.amazon.com/dp/B09HSWBTN4?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C342c95b3-0a34-441d-819c-8d20270c8c00&linkCode=ll1&tag=bestvela0b-20&linkId=ad1af72e201c580740f6a93f16c28e6e&language=en_US&ref_=as_li_ss_tl).
@@ -64,19 +64,13 @@ And, with Amazon's Prime shipping, you can get your gifts in time for Christmas.
 * Take **18% off** [Apple AirPods Max](https://www.amazon.com/dp/B08PZDSP2Z?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7Cd20f3ad1-657b-4423-bda4-6595e9c0da69&linkCode=ll1&tag=bestvela0b-20&linkId=5e770b6192381d09cad6e80a350e8d88&language=en_US&ref_=as_li_ss_tl).
 * Take **13% off** the [41mm Apple Watch Series 8 (GPS)](https://www.amazon.com/dp/B0BDHZGHPD?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C3b3720fc-c325-4e9b-9f1c-7a00dd1bf3d9&linkCode=ll1&tag=bestvela0b-20&linkId=9d004b37c07c28c516d52e28530d5aec&language=en_US&ref_=as_li_ss_tl).
 
-
-
 ## Best Amazon Black Friday Luggage Deals
-
-
 
 * Take **48% off** the [Vera Bradley Cotton Large Travel Duffle Bag](https://www.amazon.com/dp/B091PL6TNT?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C6528f47c-6ad0-4a4d-a379-7fab294798f4&linkCode=ll1&tag=bestvela0b-20&linkId=db1898f38c8e40aa80f05b1db515e179&language=en_US&ref_=as_li_ss_tl).
 * Take **39% off** the [Samsonite Winfield 3 DLX Hardside Luggage 3-piece Set](https://www.amazon.com/dp/B07FDJCSLC?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C85967c83-b8cf-4bae-8f09-716b0beb6b16&linkCode=ll1&tag=bestvela0b-20&linkId=8fcb4436899a90cd564990d64e099108&language=en_US&ref_=as_li_ss_tl).
 * Take **37% off** the [Coolife 3-piece Hardshell Luggage Set](https://www.amazon.com/dp/B07T2XYC5Z?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C15eb9b32-d2f5-4abf-ba2c-ce65c2e3a2ed&linkCode=ll1&tag=bestvela0b-20&linkId=88f506f532b439deffd1aef5ad8b8ec1&language=en_US&ref_=as_li_ss_tl).
 * Take **35% off** the [Samsonite Freeform Hardside Expandable Luggage](https://www.amazon.com/dp/B01LXOCPFG?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C74e5b6a5-a4d8-43da-aa96-8e462ef621e1&linkCode=ll1&tag=bestvela0b-20&linkId=0caf0728639e467b619dcaea001d3f52&language=en_US&ref_=as_li_ss_tl).
 * Take **27% off** the [SwissGear Sion Softside Expandable Roller Luggage](https://www.amazon.com/dp/B014TMV5YE?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C0db4cf96-57cd-49af-a267-7da4634e7b8f&linkCode=ll1&tag=bestvela0b-20&linkId=5130c0c90d85854a3b7d4786a7ca241d&language=en_US&ref_=as_li_ss_tl).
-
-
 
   ## Best Amazon Black Friday Home and Furniture Deals
 
@@ -108,19 +102,17 @@ And, with Amazon's Prime shipping, you can get your gifts in time for Christmas.
 
   ## **Best Amazon Black Friday Clothing Deals**
 
-  * Take **50% off** the [Adidas Ultraboost 22 Running Sneaker](https://www.amazon.com/dp/B091MN5ZKZ?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C90d10428-3c6c-4b1c-a86b-a10dece7309c).
-  * Take **45% off** the [Kate Spade Leila Medium Triple Compartment Shoulder Bag](https://www.amazon.com/dp/B0BFW21Y22?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C12ff121a-8bee-4c34-84f2-9e2735567919).
-  * Take **33% off** the [Columbia Heavenly Long Hooded Jacket](https://www.amazon.com/dp/B01N48I4ZV?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7Cd54b6eaf-357b-4b44-95b1-c6226ffb0769).
-  * Take **29% off** the [Grace Karin Cropped Paper Bag Pants](https://www.amazon.com/dp/B077N9STL8?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C2d60ff6e-510f-4c25-bfb7-03eef515c461), which [we tested and loved](https://www.goodhousekeeping.com/beauty/fashion/a29801017/top-amazon-fashion-review/).
-  * Take **26% off** the [Alo Yoga High-Waist Airbrush Leggings](https://www.amazon.com/dp/B00X8Y7XH8?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7Ca3f36ac0-4b44-46f6-81e2-03b5e82e23b0).
+  * Take **50% off** the [Adidas Ultraboost 22 Running Sneaker](https://www.amazon.com/dp/B091MN5ZKZ?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C90d10428-3c6c-4b1c-a86b-a10dece7309c&linkCode=ll1&tag=bestvela0b-20&linkId=729e1da61337a9b46b9d9a4874a86718&language=en_US&ref_=as_li_ss_tl).
+  * Take **45% off** the [Kate Spade Leila Medium Triple Compartment Shoulder Bag](https://www.amazon.com/dp/B0BFW21Y22?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C12ff121a-8bee-4c34-84f2-9e2735567919&linkCode=ll1&tag=bestvela0b-20&linkId=ff56f785f8a352e84cbea515e2853035&language=en_US&ref_=as_li_ss_tl).
+  * Take **33% off** the [Columbia Heavenly Long Hooded Jacket](https://www.amazon.com/dp/B01N48I4ZV?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7Cd54b6eaf-357b-4b44-95b1-c6226ffb0769&linkCode=ll1&tag=bestvela0b-20&linkId=6dbfb3b8ed02f40315592a845d9430ec&language=en_US&ref_=as_li_ss_tl).
+  * Take **29% off** the [Grace Karin Cropped Paper Bag Pants](https://www.amazon.com/dp/B077N9STL8?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C2d60ff6e-510f-4c25-bfb7-03eef515c461&linkCode=ll1&tag=bestvela0b-20&linkId=4f1db90943cae99b2e39fc505a0cf3e2&language=en_US&ref_=as_li_ss_tl), which [we tested and loved](https://www.amazon.com/dp/B077N9STL8?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C2d60ff6e-510f-4c25-bfb7-03eef515c461&linkCode=ll1&tag=bestvela0b-20&linkId=4f1db90943cae99b2e39fc505a0cf3e2&language=en_US&ref_=as_li_ss_tl).
+  * Take **26% off** the [Alo Yoga High-Waist Airbrush Leggings](https://www.amazon.com/dp/B00X8Y7XH8?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7Ca3f36ac0-4b44-46f6-81e2-03b5e82e23b0&linkCode=ll1&tag=bestvela0b-20&linkId=71698c769e8f6ccbb50724a64e36e269&language=en_US&ref_=as_li_ss_tl).
 
   ## **Best Amazon Black Friday Beauty Deals**
 
-  * Take **50% off** the [T3 Interchangeable Three Barrel Curling Iron](https://www.amazon.com/dp/B07F32H3BG?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C77627528-8a5a-4e20-97f2-f99d577fda5c).
-  * Take **45%** off the [Hot Tools Professional 2000 Turbo Ionic Hair Dryer](https://www.amazon.com/dp/B07TYVBKR5?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C87c64f2e-c1ea-47d2-827b-51385aead84d), our [top hair dryer](https://www.goodhousekeeping.com/beauty-products/hair-dryers/g550/best-hair-dryers/) pick for frizzy hair.
-  * Take **40% off** the [Conair Infinity Pro Hair Dryer](https://www.amazon.com/dp/B07TT9XH98?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C88b1700d-a701-4fc0-9599-e0ebc18d4274).
-  * Take **36% off** select [Crest 3D Whitestrips](https://www.amazon.com/Crest-Whitestrip-Whitening-Glamorous-Treatments/dp/B001OOLLVS?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7C%5Bpid%7C0d9b7ef0-f480-4fe0-8756-0342e8e586d5).
-  * Take **30% off** this [Hair and Scalp Massage Brush](https://www.amazon.com/dp/B074ZDXFL6?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C53922347-c479-4366-83ac-90273758b72a).
-  * Take **25% off** the [Revlon One Step Blow Dry Brush](https://www.amazon.com/dp/B097CNMZF5?linkCode=ogi&tag=goodhousekeeping_auto-append-20&ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7Cab24abcb-b32f-48d1-8eb9-11585f58fc66).
-
-  <!--EndFragment-->
+  * Take **50% off** the [T3 Interchangeable Three Barrel Curling Iron](https://www.amazon.com/dp/B07F32H3BG?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C77627528-8a5a-4e20-97f2-f99d577fda5c&linkCode=ll1&tag=bestvela0b-20&linkId=d01c87d2822f9d3705bdb74d441e69fb&language=en_US&ref_=as_li_ss_tl).
+  * Take **45%** off the [Hot Tools Professional 2000 Turbo Ionic Hair Dryer](https://www.amazon.com/dp/B07TYVBKR5?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C87c64f2e-c1ea-47d2-827b-51385aead84d&linkCode=ll1&tag=bestvela0b-20&linkId=aa32374ee5c4b40a08d9046ef4691d3d&language=en_US&ref_=as_li_ss_tl), our [top hair dryer](https://www.amazon.com/dp/B07TYVBKR5?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C87c64f2e-c1ea-47d2-827b-51385aead84d&linkCode=ll1&tag=bestvela0b-20&linkId=aa32374ee5c4b40a08d9046ef4691d3d&language=en_US&ref_=as_li_ss_tl) pick for frizzy hair.
+  * Take **40% off** the [Conair Infinity Pro Hair Dryer](https://www.amazon.com/dp/B07TT9XH98?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C88b1700d-a701-4fc0-9599-e0ebc18d4274&linkCode=ll1&tag=bestvela0b-20&linkId=ee8ec90c48d31c0ef172fdef6222f052&language=en_US&ref_=as_li_ss_tl).
+  * Take **36% off** select [Crest 3D Whitestrips](https://www.amazon.com/Crest-Whitestrips-Glamorous-Treatments-Individual/dp/B07XJZ1MSF?&linkCode=ll1&tag=bestvela0b-20&linkId=f9b800b9369d4159d5211b37637f8f18&language=en_US&ref_=as_li_ss_tl).
+  * Take **30% off** this [Hair and Scalp Massage Brush](https://www.amazon.com/dp/B074ZDXFL6?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7C53922347-c479-4366-83ac-90273758b72a&linkCode=ll1&tag=bestvela0b-20&linkId=6d91e31128a405567ec9d0997c91a9f5&language=en_US&ref_=as_li_ss_tl).
+  * Take **25% off** the [Revlon One Step Blow Dry Brush](https://www.amazon.com/dp/B097CNMZF5?ascsubtag=%5Bartid%7C10055.a.34383480%5Bsrc%7C%5Bch%7C%5Blt%7Csale%5Bpid%7Cab24abcb-b32f-48d1-8eb9-11585f58fc66&linkCode=ll1&tag=bestvela0b-20&linkId=124c67a8b76f65ff5db2484690904327&language=en_US&ref_=as_li_ss_tl).
